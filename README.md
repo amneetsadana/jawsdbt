@@ -6,3 +6,5 @@ This website describes a dragon boating team, based in the Southern California r
 ![image](https://user-images.githubusercontent.com/114507471/194737260-7f19712a-5dc0-4bc8-bb81-198f76cfecaa.png) 
 ### LA Race - Second and Third Place 
 ![image](https://user-images.githubusercontent.com/114507471/194737296-2e6b5ffc-3718-457b-b9af-86cc9d3909ad.png)
+link to 2023 recruitment video:
+https://www.youtube.com/watch?v=8VmXOlf5tnw 
